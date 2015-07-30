@@ -2,4 +2,4 @@
 a personal web sideNothing Special
 
 
-Set This Page To Write Some Thing .   Ro Nothing
+Set This Page To Write Some Thing .   Or Nothing
